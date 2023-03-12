@@ -26,6 +26,7 @@ In 2022 completed the full course of Lviv Polytechnic National University. Desig
 ## Languages
 
 **English** - A2 (I attend courses "Green Forest")
+
 **Ukrainian** - Fluent
 
 
